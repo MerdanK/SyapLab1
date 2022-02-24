@@ -1,1 +1,1 @@
-# SyapLab1
+# Merdan Kadyrow
